@@ -1,1 +1,0 @@
-# Parcelia-Life-Chapter
